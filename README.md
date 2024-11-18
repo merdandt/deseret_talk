@@ -1,1 +1,0 @@
-# deseret_talk
